@@ -1,7 +1,7 @@
 ---
 title: 如何优化影片长宽比例【视频尺寸调整专业方法】
-date: 2024-09-09T02:37:28.591Z
-updated: 2024-09-15T19:45:15.192Z
+date: 2024-09-15T11:50:45.446Z
+updated: 2024-09-21T08:33:08.497Z
 categories:
   - movavi
 thumbnail: https://thmb.techidaily.com/f55f35329f28573e49eb2c54e3ad586424ba4a61048c3f39de5943b637615a77.jpg
@@ -94,10 +94,16 @@ Movavi ConverterによるM4A M4B変換の方法
 ![](https://cdn.staticont.net/page_type/0023/52/e81a47dca98e3f433ed5904e0be1c890517cfd75.webp)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137393/7443" target="_top" id="2137393">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137393" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137393/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1977023">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977023.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977023">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977023.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977023%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977023/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 
@@ -108,6 +114,20 @@ Movavi ConverterによるM4A M4B変換の方法
 
 ![](https://cdn.staticont.net/page_type/0023/52/1035470d34d977bdfed4b1e61fabe61ed8fec3cc.webp)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2044583/7443" target="_top" id="2044583">
+  <img src="//a.impactradius-go.com/display-ad/7443-2044583" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044583/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130890/7443" target="_top" id="2130890">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130890" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130890/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 
 
 ステップ 4\. M4AをM4Bに変換
@@ -117,13 +137,6 @@ Movavi ConverterによるM4A M4B変換の方法
 これでMovaviコンバーターを使用してファイルフォーマットを変更する方法が分かりました。このツールを使用すると、ファイルサイズを減らしたり、ビデオからクリップを切り抜いたり、画像をクロップしたり、お気に入りのムービーからアニメーションを作成したりすることもできます。無料体験版を入手してお試しください！
 
 ![](https://cdn.staticont.net/page_type/0023/52/c03ec938ef211da129f48f0a1db374504be73054.webp)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115940/19272" target="_top" id="2115940">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115940" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115940/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 
 
@@ -193,13 +206,6 @@ iTunes、QuickTime Player、Windows Media Player、VLC
 
 ![](https://cdn.staticont.net/large/0023/57/cf8906a2f1d2d8afde4fca802515cea44f819eb7.jpg)![](https://cdn.staticont.net/large/0023/57/a26cd736bdba4b196180fd96537ae9b75b6253ba.jpg)![](https://cdn.staticont.net/large/0023/57/c2e7dff79a124e18600d55aec01616cde09d6c5b.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118324/7443" target="_top" id="2118324">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118324" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118324/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 150万人以上のユーザーがすでにニュースレターを購読しています
 
 電子メール
@@ -223,18 +229,17 @@ iTunes、QuickTime Player、Windows Media Player、VLC
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-video-recordings.techidaily.com/new-debating-platform-preferences-igtv-versus-youtube-video-sharing/"><u>[New] Debating Platform Preferences IGTV Versus YouTube Video Sharing</u></a></li>
-<li><a href="https://win-webmaster.techidaily.com/1-htc-media-suite-seamless-file-conversion-to-professional-htc-videos/"><u>1. HTC Media Suite: Seamless File Conversion to Professional HTC Videos</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-honor-90-gt-drfone-by-drfone-virtual-android/"><u>How PGSharp Save You from Ban While Spoofing Pokemon Go On Honor 90 GT? | Dr.fone</u></a></li>
-<li><a href="https://techidaily.com/how-to-factory-reset-samsung-galaxy-a15-5g-if-i-forgot-security-code-or-password-drfone-by-drfone-reset-android-reset-android/"><u>How to Factory Reset Samsung Galaxy A15 5G If I Forgot Security Code or Password? | Dr.fone</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/in-2024-detailed-steps-to-record-hulu-on-every-os-and-device-type/"><u>In 2024, Detailed Steps to Record Hulu on Every OS and Device Type</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-changefake-your-huawei-nova-y71-location-on-viber-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change/Fake Your Huawei Nova Y71 Location on Viber | Dr.fone</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/in-2024-low-fee-android-communication-options-10-best/"><u>In 2024, Low-Fee Android Communication Options, 10 Best</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/optimizing-live-obs-broadcasts-for-fb-viewers/"><u>Optimizing Live OBS Broadcasts for FB Viewers</u></a></li>
-<li><a href="https://win-webmaster.techidaily.com/1726026719435-pc/"><u>PCで作るパラパラアニメ：簡単ガイド</u></a></li>
-<li><a href="https://win-webmaster.techidaily.com/smooth-streaming-mastering-dvd-viewing-on-your-ipad/"><u>Smooth Streaming: Mastering DVD Viewing on Your iPad</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/solve-your-pcs-microphone-problems-during-zoom-meetings-a-complete-guide/"><u>Solve Your PC's Microphone Problems During Zoom Meetings - A Complete Guide</u></a></li>
-<li><a href="https://win-webmaster.techidaily.com/tablet-showdown-how-the-motorola-xoom-stacks-up-against-the-apple-ipad-2/"><u>Tablet Showdown: How the Motorola Xoom Stacks Up Against the Apple iPad 2</u></a></li>
-<li><a href="https://win-webmaster.techidaily.com/ultimate-guide-converting-dvd-content-seamlessly-into-your-nas-on-synology-and-qnap-systems/"><u>Ultimate Guide: Converting DVD Content Seamlessly Into Your NAS on Synology and QNAP Systems</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-discover-10-swift-growing-youtube-sources-for-inspiration/"><u>[New] 2024 Approved Discover 10 Swift-Growing YouTube Sources for Inspiration</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-crafting-universal-streams-for-youtube-and-beyond-networks/"><u>[New] In 2024, Crafting Universal Streams for YouTube & Beyond Networks</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/new-in-2024-elevating-your-twitters-with-a-snapchat-integration/"><u>[New] In 2024, Elevating Your Twitters with a Snapchat Integration</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-capturing-youtube-icons-browser-extension-command-line-and-software-trio-for-2024/"><u>[Updated] Capturing Youtube Icons Browser Extension, Command Line & Software Trio for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-spectacular-scrutiny-and-different-directions/"><u>2024 Approved Spectacular Scrutiny & Different Directions</u></a></li>
+<li><a href="https://article-helps.techidaily.com/best-investments-elite-4k-dslr-mounting-solutions/"><u>Best Investments Elite 4K DSLR Mounting Solutions</u></a></li>
+<li><a href="https://win-webmaster.techidaily.com/conversion-gratuita-de-archivos-swf-a-mov-online-mediante-movavi/"><u>Conversión Gratuita De Archivos SWF a MOV Online Mediante Movavi</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/expert-advice-for-elevating-windows-11-backgrounds-for-2024/"><u>Expert Advice for Elevating Windows 11 Backgrounds for 2024</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-sim-unlock-realme-gt-5-240w-phones-without-code-2-ways-to-remove-android-sim-lock-by-drfone-android/"><u>In 2024, Sim Unlock Realme GT 5 (240W) Phones without Code 2 Ways to Remove Android Sim Lock</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/mmo-galaxy-the-finest-10-free-online-roleplayers/"><u>MMO Galaxy The Finest 10 Free Online Roleplayers</u></a></li>
+<li><a href="https://win-webmaster.techidaily.com/top-16-audio-editing-tools-for-macos-users-the-ultimate-guide-by-movavi/"><u>Top 16 Audio Editing Tools for macOS Users: The Ultimate Guide by Movavi</u></a></li>
+<li><a href="https://win-webmaster.techidaily.com/transforma-archivos-raw-al-formato-gratuito-tiff-online-con-easystep-converter/"><u>Transforma Archivos RAW Al Formato Gratuito TIFF Online Con EasyStep Converter</u></a></li>
 </ul></div>
 
