@@ -1,7 +1,7 @@
 ---
 title: Live & Interactive Karaoke Event - Free Webcast of The Karaoke Summit TODAY Starting At 1 PM EST | PCDJ
-date: 2024-11-24T06:21:22.222Z
-updated: 2024-12-01T07:14:02.325Z
+date: 2024-12-02T02:42:36.561Z
+updated: 2024-12-08T17:18:52.948Z
 tags:
   - product
 categories:
@@ -30,7 +30,7 @@ Be sure to keep and eye out for **new and game-breaking karaoke tech** available
 **We’ll be [webcasting the event live from Knoxville, TN,](https://karaokesummit.wordpress.com/) so anyone can attend for FREE:** _**Thursday, October 22, from 1-3 pm Eastern. For questions regarding the Summit, please email: [karaokesummit2015@gmail.com](https://tools.techidaily.com/pcdj/products/)**_ 
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -52,16 +52,18 @@ https://i2.wp.com/pcdj.com/wp-content/uploads/2015/10/karaokesummit2015today-cov
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/024-approved-master-the-art-of-trailer-creation-for-enhanced-income/"><u>[New] 2024 Approved Master the Art of Trailer Creation for Enhanced Income</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/new-advanced-cropping-and-focus-mastery/"><u>[New] Advanced Cropping and Focus Mastery</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/arning-potential-for-creators-in-youtube-ads-for-2024/"><u>[New] Earning Potential for Creators in YouTube Ads for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/a-comprehensive-review-camera-lenses-for-youtube/"><u>A Comprehensive Review Camera Lenses for YouTube</u></a></li>
-<li><a href="https://discover-fantastic.techidaily.com/come-ripristinare-facilmente-i-tuoi-dati-eliminati-da-ununita-usb-senza-costi-aggiuntivi/"><u>Come Ripristinare Facilmente I Tuoi Dati Eliminati Da Un'unità USB Senza Costi Aggiuntivi</u></a></li>
-<li><a href="https://win-webmaster.techidaily.com/come-ripristinare-i-documenti-cancellati-da-sharepoint-senza-usare-il-cestino-una-procedura-dettagliata/"><u>Come Ripristinare I Documenti Cancellati Da SharePoint Senza Usare Il Cestino: Una Procedura Dettagliata</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/comprehensive-insights-into-apples-ai-revealed-during-wwdc-24-presentations/"><u>Comprehensive Insights Into Apple's AI Revealed During WWDC '24 Presentations</u></a></li>
-<li><a href="https://win-webmaster.techidaily.com/facile-migration-3-strategies-pour-transferer-vos-donnees-dune-nas-synology-vers-une-nas-qnap/"><u>Facile Migration: 3 Stratégies Pour Transférer Vos Données D'une NAS Synology Vers Une NAS QNAP</u></a></li>
-<li><a href="https://win-webmaster.techidaily.com/melhores-solucoes-de-restauracao-para-computadores-e-servidores-em-pequenos-e-grandes-negocios/"><u>Melhores Soluções De Restauração Para Computadores E Servidores Em Pequenos E Grandes Negócios</u></a></li>
-<li><a href="https://win-webmaster.techidaily.com/samsung-hdd/"><u>Samsung HDDでデータが消えた?信頼性高い復元方法を学ぶ</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/iches-a-deep-dive-into-mr-beasts-wealth-for-2024/"><u>The Riches A Deep Dive Into Mr. Beast's Wealth for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-how-to-record-google-meet-on-phone/"><u>[New] How to Record Google Meet on Phone?</u></a></li>
+<li><a href="https://win-webmaster.techidaily.com/1-troubleshooting-your-warped-scans-a-guide-by-yl-computings-expert-software-solutions/"><u>1. Troubleshooting Your Warped Scans: A Guide by YL Computing's Expert Software Solutions</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-discover-the-top-12-tycoon-games-for-captivating-players/"><u>2024 Approved Discover the Top 12 Tycoon Games for Captivating Players</u></a></li>
+<li><a href="https://win-webmaster.techidaily.com/how-can-i-prevent-ram-damage-in-my-pc-expert-advice-from-yl-systems-engineering/"><u>How Can I Prevent RAM Damage in My PC? Expert Advice From YL Systems Engineering</u></a></li>
+<li><a href="https://win-webmaster.techidaily.com/how-to-detect-defective-memory-modules-a-guide-by-yl-computing/"><u>How to Detect Defective Memory Modules: A Guide by YL Computing</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-earning-through-online-beauty-networks/"><u>In 2024, Earning Through Online Beauty Networks</u></a></li>
+<li><a href="https://win-webmaster.techidaily.com/optimizing-your-pc-key-configurations-to-enhance-system-efficiency-yl-computing-and-software/"><u>Optimizing Your PC: Key Configurations to Enhance System Efficiency - YL Computing & Software</u></a></li>
+<li><a href="https://win-excellent.techidaily.com/seamless-integration-syncing-your-sandisk-mp3-player-with-spotify-a-step-by-step-guide/"><u>Seamless Integration: Syncing Your SanDisk MP3 Player with Spotify - A Step-by-Step Guide</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/superior-tools-for-downloading-vimeo-videos/"><u>Superior Tools for Downloading Vimeo Videos</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/the-elusive-recorder-ghostcam-unveiled/"><u>The Elusive Recorder Ghostcam Unveiled</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/tips-of-transferring-messages-from-honor-80-pro-straight-screen-edition-to-iphone-1415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Tips of Transferring Messages from Honor 80 Pro Straight Screen Edition to iPhone 14/15 | Dr.fone</u></a></li>
+<li><a href="https://win-webmaster.techidaily.com/troubleshooting-your-pc-understanding-the-reasons-behind-an-undetected-cd-drive-insights-from-yl-computing/"><u>Troubleshooting Your PC: Understanding the Reasons Behind an Undetected CD Drive - Insights From YL Computing</u></a></li>
+<li><a href="https://win-webmaster.techidaily.com/ultimate-guide-resolving-system-hardware-issues-with-expertise-from-yl-software-solutions/"><u>Ultimate Guide: Resolving System Hardware Issues with Expertise From YL Software Solutions</u></a></li>
 </ul></div>
 
