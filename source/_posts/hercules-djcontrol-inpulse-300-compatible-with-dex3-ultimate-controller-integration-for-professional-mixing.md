@@ -1,7 +1,7 @@
 ---
 title: "Hercules DJControl Inpulse 300 Compatible with DEX3: Ultimate Controller Integration for Professional Mixing"
-date: 2024-12-09T09:39:11.786Z
-updated: 2024-12-14T22:32:38.119Z
+date: 2024-12-21T12:05:18.625Z
+updated: 2024-12-23T17:10:50.603Z
 tags:
   - product
 categories:
@@ -27,13 +27,13 @@ The [Hercules DJControl Inpulse 300](https://www.hercules.com/en-us/product/djco
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Hercules DJControl Inpulse 300 Specifications:
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Audio
@@ -43,7 +43,7 @@ The [Hercules DJControl Inpulse 300](https://www.hercules.com/en-us/product/djco
 * Headphones out: 1/8” stereo (3.5 mm)Resolution: 24-bit/44.1 kHz
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Controls Per Deck
@@ -55,7 +55,7 @@ The [Hercules DJControl Inpulse 300](https://www.hercules.com/en-us/product/djco
 * Browser controls: Rotary encoder + 2 load keys + Assistant key
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Controls On Mixer
@@ -83,7 +83,7 @@ The [Hercules DJControl Inpulse 300](https://www.hercules.com/en-us/product/djco
 _Have questions about the **Hercules DJ Control Inpulse 300** and how it works with our DEX 3 **DJ software**? Please leave them in the comments section below!_
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -105,18 +105,21 @@ https://i0.wp.com/pcdj.com/wp-content/uploads/2020/06/inpulse300.jpg?fit=1114%2C
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-posts.techidaily.com/new-prime-streaming-services-ranked-a-comparison-analysis-for-2024/"><u>[New] Prime Streaming Services Ranked A Comparison Analysis for 2024</u></a></li>
-<li><a href="https://app-tips.techidaily.com/best-no-cost-android-tracking-programs-top-5-picks-for-smartphone-surveillance/"><u>Best No-Cost Android Tracking Programs: Top 5 Picks for Smartphone Surveillance</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/can-chatgpt-lead-to-unemployment-assessing-the-consequences-across-various-work-situations/"><u>Can ChatGPT Lead to Unemployment? Assessing the Consequences Across Various Work Situations</u></a></li>
-<li><a href="https://win-webmaster.techidaily.com/download-the-latest-free-karaoke-app-with-new-features-version-110/"><u>Download the Latest Free Karaoke App with New Features - Version 1.1.0</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/in-2024-global-sensations-surpassing-100-million-views-on-youtube-the-yearly-countdown/"><u>In 2024, Global Sensations Surpassing 100 Million Views on YouTube (The Yearly Countdown)</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-here-are-some-reliable-ways-to-get-pokemon-go-friend-codes-for-apple-iphone-15-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For Apple iPhone 15 Plus | Dr.fone</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-cricket-iphone-14-pro-for-free-by-drfone-ios/"><u>In 2024, How To Unlock Cricket iPhone 14 Pro for Free</u></a></li>
-<li><a href="https://win-webmaster.techidaily.com/newest-hits-now-available-update-your-playlist-with-the-latest-additions-on-karaoke-cloud-pro-3282019/"><u>Newest Hits Now Available - Update Your Playlist with the Latest Additions on Karaoke Cloud Pro (3/28/2019)</u></a></li>
-<li><a href="https://win-webmaster.techidaily.com/resolving-your-internet-access-problems-with-wireless-networking-a-guide-by-yl-software/"><u>Resolving Your Internet Access Problems with Wireless Networking - A Guide by YL Software</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/the-complete-tutorial-for-mac-managing-and-opening-rar-compressed-files/"><u>The Complete Tutorial for Mac: Managing & Opening RAR Compressed Files</u></a></li>
-<li><a href="https://win-webmaster.techidaily.com/troubleshooting-techniques-identifying-and-resolving-windows-app-errors-expert-tips-from-yl-computing/"><u>Troubleshooting Techniques: Identifying & Resolving Windows App Errors - Expert Tips From YL Computing</u></a></li>
-<li><a href="https://win-webmaster.techidaily.com/troubleshooting-tips-how-to-fix-scanning-issues-when-images-wont-load-yl-software-solutions/"><u>Troubleshooting Tips: How to Fix Scanning Issues When Images Won't Load - YL Software Solutions</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/ultimate-windows-clean-up-stellar-file-deleter-5-optimized-for-safe-file-and-folder-removal/"><u>Ultimate Window's Clean-Up: Stellar File Deleter 5 - Optimized for Safe File & Folder Removal</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-premium-window-calls-top-8-standout-titles-for-2024/"><u>[New] Premium Window Calls Top 8 Standout Titles for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-how-to-make-looping-videos-for-instagram/"><u>[Updated] 2024 Approved How To Make Looping Videos for Instagram?</u></a></li>
+<li><a href="https://win-webmaster.techidaily.com/clear-out-clutter-a-users-handbook-for-detecting-and-deleting-unneeded-programs-using-yl-software-techniques/"><u>Clear Out Clutter: A User’s Handbook for Detecting and Deleting Unneeded Programs Using YL Software Techniques</u></a></li>
+<li><a href="https://location-social.techidaily.com/does-find-my-friends-work-on-samsung-galaxy-xcover-6-pro-tactical-edition-drfone-by-drfone-virtual-android/"><u>Does find my friends work on Samsung Galaxy XCover 6 Pro Tactical Edition | Dr.fone</u></a></li>
+<li><a href="https://win-webmaster.techidaily.com/easy-guide-customizing-your-screen-display-on-windows-via-control-panel-tips-from-yl-computing/"><u>Easy Guide: Customizing Your Screen Display on Windows via Control Panel - Tips From YL Computing</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/enhance-your-online-presence-using-manycam-the-ultimate-live-video-and-virtual-webcam-solution/"><u>Enhance Your Online Presence Using ManyCam – The Ultimate Live Video and Virtual Webcam Solution</u></a></li>
+<li><a href="https://win-webmaster.techidaily.com/high-performance-ford-mustang-shelby-gt350-desktop-backgrounds-by-yl-computing-your-digital-graphics-hub/"><u>High-Performance Ford Mustang Shelby GT350 Desktop Backgrounds by YL Computing - Your Digital Graphics Hub</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-flash-dead-itel-p40-safely-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Flash Dead Itel P40 Safely | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-step-by-step-garageband-tutorial-for-podcast-creation/"><u>In 2024, Step-by-Step GarageBand Tutorial for Podcast Creation</u></a></li>
+<li><a href="https://win-webmaster.techidaily.com/protecting-against-windows-memory-failures-with-expert-advice-from-yl-software/"><u>Protecting Against Windows Memory Failures with Expert Advice From YL Software</u></a></li>
+<li><a href="https://techtrends.techidaily.com/psvr-2-unveiled-comprehensive-overview-of-news-price-points-expected-arrival-date-and-full-technical-specs/"><u>PSVR 2 Unveiled: Comprehensive Overview of News, Price Points, Expected Arrival Date, and Full Technical Specs</u></a></li>
+<li><a href="https://driver-download.techidaily.com/simple-guide-update-and-install-amd-radeon-rx-470-drivers/"><u>Simple Guide: Update and Install AMD Radeon RX 470 Drivers</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/tailored-free-offer-unlock-our-exclusive-youtube-banner-pack-for-2024/"><u>Tailored Free Offer - Unlock Our Exclusive YouTube Banner Pack for 2024</u></a></li>
+<li><a href="https://win-webmaster.techidaily.com/transform-your-pcs-look-a-step-by-step-guide-to-customizing-windows-11-display-preferences-tips-from-yl-computing/"><u>Transform Your PC's Look: A Step-by-Step Guide to Customizing Windows 11 Display Preferences - Tips From YL Computing</u></a></li>
+<li><a href="https://win-webmaster.techidaily.com/troubleshooting-your-pcs-hardware-tips-and-techniques-from-yl-technology-experts/"><u>Troubleshooting Your PC's Hardware: Tips and Techniques From YL Technology Experts</u></a></li>
+<li><a href="https://win-webmaster.techidaily.com/updating-your-scanner-drivers-on-windows-a-step-by-step-guide-yl-computing/"><u>Updating Your Scanner Drivers on Windows - A Step-by-Step Guide (YL Computing)</u></a></li>
 </ul></div>
 
