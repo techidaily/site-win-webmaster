@@ -1,7 +1,7 @@
 ---
 title: Live & Interactive Karaoke Event - Free Webcast of The Karaoke Summit TODAY Starting At 1 PM EST | PCDJ
-date: 2024-12-28T02:45:38.562Z
-updated: 2024-12-29T19:00:42.488Z
+date: 2025-01-06T10:11:06.219Z
+updated: 2025-01-09T01:43:55.324Z
 tags:
   - product
 categories:
@@ -30,7 +30,7 @@ Be sure to keep and eye out for **new and game-breaking karaoke tech** available
 **We’ll be [webcasting the event live from Knoxville, TN,](https://karaokesummit.wordpress.com/) so anyone can attend for FREE:** _**Thursday, October 22, from 1-3 pm Eastern. For questions regarding the Summit, please email: [karaokesummit2015@gmail.com](https://tools.techidaily.com/pcdj/products/)**_ 
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -52,18 +52,21 @@ https://i2.wp.com/pcdj.com/wp-content/uploads/2015/10/karaokesummit2015today-cov
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-speedy-spread-of-youtube-playlists-techniques/"><u>[New] 2024 Approved Speedy Spread of Youtube Playlists Techniques</u></a></li>
-<li><a href="https://some-tips.techidaily.com/new-tapping-humors-potential-with-a-comprehensive-9gag-meme-creation-guide/"><u>[New] Tapping Humor's Potential with a Comprehensive 9GAG Meme Creation Guide</u></a></li>
-<li><a href="https://win-webmaster.techidaily.com/decoding-the-gold-and-silver-saga-unveiling-global-data-strength-amidst-economic-predictions-expert-tools-by-yl-software-for-investors/"><u>Decoding the Gold & Silver Saga: Unveiling Global Data Strength Amidst Economic Predictions – Expert Tools by YL Software for Investors</u></a></li>
-<li><a href="https://win-webmaster.techidaily.com/fixing-incorrect-color-detection-by-your-scanner-guidance-and-advice-from-yl-software-experts/"><u>Fixing Incorrect Color Detection by Your Scanner: Guidance and Advice From YL Software Experts</u></a></li>
-<li><a href="https://win-webmaster.techidaily.com/how-to-accelerate-your-computers-hard-drive-performance-expert-tips-from-yl-computing/"><u>How to Accelerate Your Computer's Hard Drive Performance: Expert Tips From YL Computing</u></a></li>
-<li><a href="https://apple-account.techidaily.com/how-to-unlock-apple-id-from-your-iphone-15-pro-without-security-questions-by-drfone-ios/"><u>How to Unlock Apple ID From your iPhone 15 Pro without Security Questions?</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-prevent-cross-site-tracking-on-honor-v-purse-and-browser-drfone-by-drfone-virtual-android/"><u>In 2024, Prevent Cross-Site Tracking on Honor V Purse and Browser | Dr.fone</u></a></li>
-<li><a href="https://article-helps.techidaily.com/optimize-your-storage-without-spending-a-penny-best-30-clouds-with-1tb-included-for-2024/"><u>Optimize Your Storage Without Spending a Penny Best 30 Clouds with 1TB Included for 2024</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/samsung-galaxy-a25-5g-not-connecting-to-wi-fi-12-quick-ways-to-fix-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Samsung Galaxy A25 5G Not Connecting to Wi-Fi? 12 Quick Ways to Fix | Dr.fone</u></a></li>
-<li><a href="https://win-webmaster.techidaily.com/stunning-jaguar-f-type-r-desktop-backgrounds-by-yl-computing-powerful-imagery-from-yl-software-solutions/"><u>Stunning Jaguar F-Type R Desktop Backgrounds by YL Computing - Powerful Imagery From YL Software Solutions</u></a></li>
-<li><a href="https://win-webmaster.techidaily.com/unlock-the-secrets-of-monitoring-cryptocurrency-portfolios-with-yl-softwares-address-balance-utility/"><u>Unlock the Secrets of Monitoring Cryptocurrency Portfolios with YL Software’s Address Balance Utility</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/user-guide-to-the-high-costs-and-inconveniences-of-owning-a-microsoft-surface-duo/"><u>User Guide to the High Costs & Inconveniences of Owning a Microsoft Surface Duo</u></a></li>
-<li><a href="https://win-webmaster.techidaily.com/yl-computings-aluminum-icon-set-the-ultimate-icon-collection-by-yl-software/"><u>YL Computing's Aluminum Icon Set: The Ultimate Icon Collection by YL Software</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-in-2024-unveiling-the-premier-html5-video-players-list/"><u>[Updated] In 2024, Unveiling The Premier HTML5 Video Players List</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/a-comprehensive-guide-to-apple-iphone-8-blacklist-removal-tips-and-tools-drfone-by-drfone-ios/"><u>A Comprehensive Guide to Apple iPhone 8 Blacklist Removal Tips and Tools | Dr.fone</u></a></li>
+<li><a href="https://win-webmaster.techidaily.com/british-museum-faces-pressure-to-return-illegally-acquired-ancient-chinese-artifacts-urgent-appeal-by-chinas-media-monitored-by-yl-tech-experts/"><u>British Museum Faces Pressure to Return Illegally Acquired Ancient Chinese Artifacts – Urgent Appeal by China's Media Monitored by YL Tech Experts</u></a></li>
+<li><a href="https://win-webmaster.techidaily.com/ensuring-updated-sound-card-drivers-tips-from-yl-software-expertise/"><u>Ensuring Updated Sound Card Drivers: Tips From YL Software Expertise</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-changefake-your-lava-blaze-2-5g-location-on-viber-drfone-by-drfone-virtual-android/"><u>How to Change/Fake Your Lava Blaze 2 5G Location on Viber | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-to-come-up-with-the-best-pokemon-team-on-lava-agni-2-5g-drfone-by-drfone-virtual-android/"><u>How to Come up With the Best Pokemon Team On Lava Agni 2 5G? | Dr.fone</u></a></li>
+<li><a href="https://win-webmaster.techidaily.com/how-to-fix-a-laptop-that-refuses-to-boot-solutions-from-yl-computing-and-yl-software/"><u>How to Fix a Laptop That Refuses to Boot - Solutions From YL Computing and YL Software</u></a></li>
+<li><a href="https://win-webmaster.techidaily.com/how-to-implement-parental-management-tools-on-windows-step-by-step-from-yl-software/"><u>How to Implement Parental Management Tools on Windows: Step-by-Step From YL Software</u></a></li>
+<li><a href="https://win-webmaster.techidaily.com/how-to-troubleshoot-graphics-card-problems-causing-gaming-crashes-on-your-computer-tips-and-expertise-by-yl-software/"><u>How to Troubleshoot Graphics Card Problems Causing Gaming Crashes on Your Computer – Tips & Expertise by YL Software</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-forgotten-the-voicemail-password-of-motorola-razr-40-ultra-try-these-fixes-by-drfone-android/"><u>In 2024, Forgotten The Voicemail Password Of Motorola Razr 40 Ultra? Try These Fixes</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/leading-phones-best-gopro-videos-editing-tools-for-2024/"><u>Leading Phones' Best GoPro Videos Editing Tools for 2024</u></a></li>
+<li><a href="https://win-webmaster.techidaily.com/mastering-bitcoin-balance-verification-a-comprehensive-guide-by-yl-computing/"><u>Mastering Bitcoin Balance Verification: A Comprehensive Guide by YL Computing</u></a></li>
+<li><a href="https://techtrends.techidaily.com/top-rated-network-server-cabinets-and-chassis-2024-reviews/"><u>Top-Rated Network Server Cabinets & Chassis - 2024 Reviews</u></a></li>
+<li><a href="https://win-webmaster.techidaily.com/troubleshooting-your-network-connected-printer-problems-tips-and-solutions-from-yl-computing/"><u>Troubleshooting Your Network-Connected Printer Problems - Tips and Solutions From YL Computing</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/turn-on-windows-11s-rgb-controller-functionality/"><u>Turn on Windows 11'S RGB Controller Functionality</u></a></li>
+<li><a href="https://change-location.techidaily.com/where-is-the-best-place-to-catch-dratini-on-samsung-galaxy-s24-ultra-drfone-by-drfone-virtual-android/"><u>Where Is the Best Place to Catch Dratini On Samsung Galaxy S24 Ultra | Dr.fone</u></a></li>
 </ul></div>
 

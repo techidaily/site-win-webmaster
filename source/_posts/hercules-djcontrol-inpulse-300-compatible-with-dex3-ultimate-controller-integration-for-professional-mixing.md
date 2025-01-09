@@ -1,7 +1,7 @@
 ---
 title: "Hercules DJControl Inpulse 300 Compatible with DEX3: Ultimate Controller Integration for Professional Mixing"
-date: 2024-12-28T16:04:01.602Z
-updated: 2024-12-29T23:13:01.657Z
+date: 2025-01-06T10:18:42.838Z
+updated: 2025-01-09T06:41:52.871Z
 tags:
   - product
 categories:
@@ -27,13 +27,13 @@ The [Hercules DJControl Inpulse 300](https://www.hercules.com/en-us/product/djco
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Hercules DJControl Inpulse 300 Specifications:
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Audio
@@ -43,7 +43,7 @@ The [Hercules DJControl Inpulse 300](https://www.hercules.com/en-us/product/djco
 * Headphones out: 1/8” stereo (3.5 mm)Resolution: 24-bit/44.1 kHz
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Controls Per Deck
@@ -55,7 +55,7 @@ The [Hercules DJControl Inpulse 300](https://www.hercules.com/en-us/product/djco
 * Browser controls: Rotary encoder + 2 load keys + Assistant key
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Controls On Mixer
@@ -83,7 +83,7 @@ The [Hercules DJControl Inpulse 300](https://www.hercules.com/en-us/product/djco
 _Have questions about the **Hercules DJ Control Inpulse 300** and how it works with our DEX 3 **DJ software**? Please leave them in the comments section below!_
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -105,24 +105,18 @@ https://i0.wp.com/pcdj.com/wp-content/uploads/2020/06/inpulse300.jpg?fit=1114%2C
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-capture.techidaily.com/new-in-2024-4-ways-to-record-sims-4-gameplay/"><u>[New] In 2024, 4 Ways to Record Sims 4 Gameplay</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/n-2024-enhancing-your-game-time-with-youtube-live-broadcasts/"><u>[New] In 2024, Enhancing Your Game Time with YouTube Live Broadcasts</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-in-2024-ps5-visual-mastery-premium-21-hdmi-monitors-for-gamers/"><u>[Updated] In 2024, PS5 Visual Mastery Premium 2.1 HDMI Monitors for Gamers</u></a></li>
-<li><a href="https://win-webmaster.techidaily.com/1-how-to-verify-your-sound-card-settings-on-windows-audio-panel-a-guide-by-yl-software/"><u>1. How to Verify Your Sound Card Settings on Windows Audio Panel - A Guide by YL Software</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/easy-steps-for-sharing-your-xbox-playtime-for-2024/"><u>Easy Steps for Sharing Your Xbox Playtime for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/exploring-your-digital-trail-a-comprehensive-guide-to-previewing-off-facebook-activities/"><u>Exploring Your Digital Trail - A Comprehensive Guide to Previewing Off-Facebook Activities</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/zeroes-to-heroes-amplifying-your-youtube-following-for-2024/"><u>From Zeroes to Heroes Amplifying Your Youtube Following for 2024</u></a></li>
-<li><a href="https://win-webmaster.techidaily.com/high-definition-bikini-beach-scenes-premium-wallpapers-and-desktop-graphics-by-yl-computing-solutions/"><u>High-Definition Bikini Beach Scenes - Premium Wallpapers & Desktop Graphics by YL Computing Solutions</u></a></li>
-<li><a href="https://win-webmaster.techidaily.com/how-can-i-evaluate-my-laptops-gpu-performance-expert-tips-from-yl-computing/"><u>How Can I Evaluate My Laptop's GPU Performance? - Expert Tips From YL Computing</u></a></li>
-<li><a href="https://win-webmaster.techidaily.com/master-windows-troubleshooting-fixes-for-hardware-errors-and-device-glitches-with-guidance-by-yl-software-experts/"><u>Master Windows Troubleshooting: Fixes for Hardware Errors and Device Glitches with Guidance by YL Software Experts</u></a></li>
-<li><a href="https://win-webmaster.techidaily.com/mastering-hardware-troubleshooting-proven-tips-for-windows-diagnostics-by-yl-technology/"><u>Mastering Hardware Troubleshooting: Proven Tips for Windows Diagnostics by YL Technology</u></a></li>
-<li><a href="https://win-webmaster.techidaily.com/pcdj-pro-dj-software-version-31004-update-for-dex3-free-download-now/"><u>PCDJ Pro DJ Software Version 3.10.0.4 Update for DEX3: Free Download Now!</u></a></li>
-<li><a href="https://win-webmaster.techidaily.com/solving-windows-os-error-notifications-a-guide-by-yl-software/"><u>Solving Windows OS Error Notifications - A Guide by YL Software</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210926676-9781915776082-speaking-with-angels/"><u>Speaking with Angels | Free Book</u></a></li>
-<li><a href="https://win-webmaster.techidaily.com/step-by-step-guide-reinstalling-your-graphics-card-drivers-on-a-windows-machine-with-tips-from-yl-software-experts/"><u>Step-by-Step Guide: Reinstalling Your Graphics Card Drivers on a Windows Machine with Tips From YL Software Experts</u></a></li>
-<li><a href="https://win-dash.techidaily.com/synaptics-driver-management-made-simple-free-windows-updates-available-now/"><u>Synaptics Driver Management Made Simple – Free Windows Updates Available Now</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/top-rated-protective-covers-for-iphone-14-promax-the-ultimate-guide-insights-by-zdnet/"><u>Top-Rated Protective Covers for iPhone 14 Pro/Max: The Ultimate Guide - Insights by ZDNet</u></a></li>
-<li><a href="https://win-answers.techidaily.com/1723000821417-troubleshooting-tips-for-smooth-play-in-halo-infinite-no-more-stutters/"><u>Troubleshooting Tips for Smooth Play in Halo Infinite - No More Stutters</u></a></li>
-<li><a href="https://win-webmaster.techidaily.com/yl-computings-patriotic-collection-classic-and-modern-4th-of-july-wallpaper-pack-for-windows-pcs/"><u>YL Computing's Patriotic Collection: Classic and Modern 4Th of July Wallpaper Pack for Windows PCs</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-2024-approved-how-to-spot-and-attract-premium-videographers/"><u>[New] 2024 Approved How to Spot and Attract Premium Videographers</u></a></li>
+<li><a href="https://win-webmaster.techidaily.com/1-troubleshooting-your-warped-scans-a-guide-by-yl-computings-expert-software-solutions/"><u>1. Troubleshooting Your Warped Scans: A Guide by YL Computing's Expert Software Solutions</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/boost-creativity-and-performance-with-these-top-10-free-tiktok-editors-for-mac/"><u>Boost Creativity and Performance with These Top 10 FREE TikTok Editors for Mac</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/-your-channel-innovative-banner-templates-for-gamers-for-2024/"><u>Brand Your Channel Innovative Banner Templates for Gamers for 2024</u></a></li>
+<li><a href="https://win-webmaster.techidaily.com/diy-solutions-for-windows-firewall-difficulties-masterclass-from-yl-software-professionals/"><u>DIY Solutions for Windows Firewall Difficulties - Masterclass From YL Software Professionals</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/dreamworks-studios-greatest-animations-the-ultimate-top-10-collection/"><u>DreamWorks Studio's Greatest Animations: The Ultimate Top 10 Collection</u></a></li>
+<li><a href="https://win-webmaster.techidaily.com/how-can-i-prevent-ram-damage-in-my-pc-expert-advice-from-yl-systems-engineering/"><u>How Can I Prevent RAM Damage in My PC? Expert Advice From YL Systems Engineering</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-still-using-pattern-locks-with-samsung-galaxy-a54-5g-tips-tricks-and-helpful-advice-by-drfone-android/"><u>In 2024, Still Using Pattern Locks with Samsung Galaxy A54 5G? Tips, Tricks and Helpful Advice</u></a></li>
+<li><a href="https://media-tips.techidaily.com/the-evolution-of-paramountplus-understanding-its-recent-shift-towards-selective-content-offerings/"><u>The Evolution of Paramount+ - Understanding Its Recent Shift Towards Selective Content Offerings</u></a></li>
+<li><a href="https://win-webmaster.techidaily.com/troubleshooting-your-pc-understanding-the-reasons-behind-an-undetected-cd-drive-insights-from-yl-computing/"><u>Troubleshooting Your PC: Understanding the Reasons Behind an Undetected CD Drive - Insights From YL Computing</u></a></li>
+<li><a href="https://win-deluxe.techidaily.com/ultimate-guide-capturing-screen-images-efficiently-on-pc-windows/"><u>Ultimate Guide: Capturing Screen Images Efficiently on PC (Windows)</u></a></li>
+<li><a href="https://win-webmaster.techidaily.com/ultimate-guide-resolving-system-hardware-issues-with-expertise-from-yl-software-solutions/"><u>Ultimate Guide: Resolving System Hardware Issues with Expertise From YL Software Solutions</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-in-2024-final-cut-pro-x-title-templates-how-to-use-and-customize-them/"><u>Updated In 2024, Final Cut Pro X Title Templates How to Use and Customize Them</u></a></li>
 </ul></div>
 
