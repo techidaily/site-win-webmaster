@@ -1,7 +1,7 @@
 ---
 title: "Hercules DJControl Inpulse 300 Compatible with DEX3: Ultimate Controller Integration for Professional Mixing"
-date: 2025-01-06T10:18:42.838Z
-updated: 2025-01-09T06:41:52.871Z
+date: 2025-01-09T21:53:35.709Z
+updated: 2025-01-15T00:25:36.659Z
 tags:
   - product
 categories:
@@ -27,13 +27,13 @@ The [Hercules DJControl Inpulse 300](https://www.hercules.com/en-us/product/djco
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Hercules DJControl Inpulse 300 Specifications:
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Audio
@@ -43,7 +43,7 @@ The [Hercules DJControl Inpulse 300](https://www.hercules.com/en-us/product/djco
 * Headphones out: 1/8” stereo (3.5 mm)Resolution: 24-bit/44.1 kHz
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Controls Per Deck
@@ -55,7 +55,7 @@ The [Hercules DJControl Inpulse 300](https://www.hercules.com/en-us/product/djco
 * Browser controls: Rotary encoder + 2 load keys + Assistant key
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Controls On Mixer
@@ -83,7 +83,7 @@ The [Hercules DJControl Inpulse 300](https://www.hercules.com/en-us/product/djco
 _Have questions about the **Hercules DJ Control Inpulse 300** and how it works with our DEX 3 **DJ software**? Please leave them in the comments section below!_
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -105,18 +105,22 @@ https://i0.wp.com/pcdj.com/wp-content/uploads/2020/06/inpulse300.jpg?fit=1114%2C
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-hovers.techidaily.com/new-2024-approved-how-to-spot-and-attract-premium-videographers/"><u>[New] 2024 Approved How to Spot and Attract Premium Videographers</u></a></li>
-<li><a href="https://win-webmaster.techidaily.com/1-troubleshooting-your-warped-scans-a-guide-by-yl-computings-expert-software-solutions/"><u>1. Troubleshooting Your Warped Scans: A Guide by YL Computing's Expert Software Solutions</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/boost-creativity-and-performance-with-these-top-10-free-tiktok-editors-for-mac/"><u>Boost Creativity and Performance with These Top 10 FREE TikTok Editors for Mac</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/-your-channel-innovative-banner-templates-for-gamers-for-2024/"><u>Brand Your Channel Innovative Banner Templates for Gamers for 2024</u></a></li>
-<li><a href="https://win-webmaster.techidaily.com/diy-solutions-for-windows-firewall-difficulties-masterclass-from-yl-software-professionals/"><u>DIY Solutions for Windows Firewall Difficulties - Masterclass From YL Software Professionals</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/dreamworks-studios-greatest-animations-the-ultimate-top-10-collection/"><u>DreamWorks Studio's Greatest Animations: The Ultimate Top 10 Collection</u></a></li>
-<li><a href="https://win-webmaster.techidaily.com/how-can-i-prevent-ram-damage-in-my-pc-expert-advice-from-yl-systems-engineering/"><u>How Can I Prevent RAM Damage in My PC? Expert Advice From YL Systems Engineering</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-still-using-pattern-locks-with-samsung-galaxy-a54-5g-tips-tricks-and-helpful-advice-by-drfone-android/"><u>In 2024, Still Using Pattern Locks with Samsung Galaxy A54 5G? Tips, Tricks and Helpful Advice</u></a></li>
-<li><a href="https://media-tips.techidaily.com/the-evolution-of-paramountplus-understanding-its-recent-shift-towards-selective-content-offerings/"><u>The Evolution of Paramount+ - Understanding Its Recent Shift Towards Selective Content Offerings</u></a></li>
-<li><a href="https://win-webmaster.techidaily.com/troubleshooting-your-pc-understanding-the-reasons-behind-an-undetected-cd-drive-insights-from-yl-computing/"><u>Troubleshooting Your PC: Understanding the Reasons Behind an Undetected CD Drive - Insights From YL Computing</u></a></li>
-<li><a href="https://win-deluxe.techidaily.com/ultimate-guide-capturing-screen-images-efficiently-on-pc-windows/"><u>Ultimate Guide: Capturing Screen Images Efficiently on PC (Windows)</u></a></li>
-<li><a href="https://win-webmaster.techidaily.com/ultimate-guide-resolving-system-hardware-issues-with-expertise-from-yl-software-solutions/"><u>Ultimate Guide: Resolving System Hardware Issues with Expertise From YL Software Solutions</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/updated-in-2024-final-cut-pro-x-title-templates-how-to-use-and-customize-them/"><u>Updated In 2024, Final Cut Pro X Title Templates How to Use and Customize Them</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ailor-made-video-cuts-macs-top-mp4-slicers-revealed-for-2024/"><u>[New] Tailor-Made Video Cuts Mac's Top MP4 Slicers Revealed for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-a-20-second-symphony-understanding-musics-compact-formats/"><u>[Updated] 2024 Approved A 20-Second Symphony Understanding Music's Compact Formats</u></a></li>
+<li><a href="https://win-webmaster.techidaily.com/aggiorna-il-tuo-ps3-con-un-nuovo-disco-rigido-esterno-per-ps4-hd-o-ssd-piu-grande/"><u>Aggiorna Il Tuo PS3 Con Un Nuovo Disco Rigido Esterno per PS4 - HD O SSD Più Grande</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/carnal-communication-eloquence-in-spanish-conversation/"><u>Carnal Communication: Eloquence in Spanish Conversation</u></a></li>
+<li><a href="https://win-webmaster.techidaily.com/comment-effectuer-une-sauvegarde-complet-de-son-ordinateur-sous-windows/"><u>Comment Effectuer Une Sauvegarde Complet De Son Ordinateur Sous Windows</u></a></li>
+<li><a href="https://win-webmaster.techidaily.com/comment-sauvegarder-en-securite-vos-donnees-avec-la-solution-de-secours-pour-les-disques/"><u>Comment Sauvegarder en Sécurité Vos Données Avec La Solution De Secours Pour Les Disques</u></a></li>
+<li><a href="https://article-posts.techidaily.com/comprehensive-powerdirector-24-analysis-and-tutorial/"><u>Comprehensive PowerDirector '24 Analysis and Tutorial</u></a></li>
+<li><a href="https://win-webmaster.techidaily.com/effektive-ansatze-uberwindet-man-das-formatierungsproblem-auf-sandisk-sd-karten/"><u>Effektive Ansätze: Überwindet Man Das Formatierungsproblem Auf Sandisk SD-Karten?</u></a></li>
+<li><a href="https://win-webmaster.techidaily.com/efficient-ways-to-optimize-and-lower-window-11s-antimalware-service-executable-memory-consumption-amoled/"><u>Efficient Ways to Optimize and Lower Window 11'S Antimalware Service Executable Memory Consumption (AMOLED)</u></a></li>
+<li><a href="https://fake-location.techidaily.com/fixing-foneazy-mockgo-not-working-on-nokia-105-classic-drfone-by-drfone-virtual-android/"><u>Fixing Foneazy MockGo Not Working On Nokia 105 Classic | Dr.fone</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/free-ways-to-liven-up-static-video-texts-for-2024/"><u>FREE Ways to Liven Up Static Video Texts for 2024</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-how-to-bypass-google-frp-lock-on-oppo-k11x-devices-by-drfone-android/"><u>In 2024, How to Bypass Google FRP Lock on Oppo K11x Devices</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-pause-life360-location-sharing-for-honor-100-drfone-by-drfone-virtual-android/"><u>In 2024, How To Pause Life360 Location Sharing For Honor 100 | Dr.fone</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/meta-quest-earphones-mic-troubleshooting-and-optimal-use-techniques/"><u>Meta Quest Earphones Mic Troubleshooting & Optimal Use Techniques</u></a></li>
+<li><a href="https://win-webmaster.techidaily.com/quick-and-effective-techniques-for-rapid-hard-drive-data-restoration/"><u>Quick & Effective Techniques for Rapid Hard Drive Data Restoration</u></a></li>
+<li><a href="https://win-webmaster.techidaily.com/recuperation-des-points-de-deploiement-et-restauration-supprimes-sur-windows-tutoriel-facile-avec-7-techniques-provenantes/"><u>Récupération Des Points De Déploiement Et Restauration Supprimés Sur Windows - Tutoriel Facile Avec 7 Techniques Provenantes</u></a></li>
+<li><a href="https://win-webmaster.techidaily.com/windows-11-and-10-fix-reduce-oversized-system-files/"><u>Windows 11 & 10 Fix: Reduce Oversized System Files</u></a></li>
 </ul></div>
 

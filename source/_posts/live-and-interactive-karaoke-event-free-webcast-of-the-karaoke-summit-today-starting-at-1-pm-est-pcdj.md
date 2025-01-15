@@ -1,7 +1,7 @@
 ---
 title: Live & Interactive Karaoke Event - Free Webcast of The Karaoke Summit TODAY Starting At 1 PM EST | PCDJ
-date: 2025-01-06T10:11:06.219Z
-updated: 2025-01-09T01:43:55.324Z
+date: 2025-01-12T17:16:02.844Z
+updated: 2025-01-15T06:30:59.888Z
 tags:
   - product
 categories:
@@ -30,7 +30,7 @@ Be sure to keep and eye out for **new and game-breaking karaoke tech** available
 **We’ll be [webcasting the event live from Knoxville, TN,](https://karaokesummit.wordpress.com/) so anyone can attend for FREE:** _**Thursday, October 22, from 1-3 pm Eastern. For questions regarding the Summit, please email: [karaokesummit2015@gmail.com](https://tools.techidaily.com/pcdj/products/)**_ 
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -52,21 +52,18 @@ https://i2.wp.com/pcdj.com/wp-content/uploads/2015/10/karaokesummit2015today-cov
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-direct.techidaily.com/updated-in-2024-unveiling-the-premier-html5-video-players-list/"><u>[Updated] In 2024, Unveiling The Premier HTML5 Video Players List</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/a-comprehensive-guide-to-apple-iphone-8-blacklist-removal-tips-and-tools-drfone-by-drfone-ios/"><u>A Comprehensive Guide to Apple iPhone 8 Blacklist Removal Tips and Tools | Dr.fone</u></a></li>
-<li><a href="https://win-webmaster.techidaily.com/british-museum-faces-pressure-to-return-illegally-acquired-ancient-chinese-artifacts-urgent-appeal-by-chinas-media-monitored-by-yl-tech-experts/"><u>British Museum Faces Pressure to Return Illegally Acquired Ancient Chinese Artifacts – Urgent Appeal by China's Media Monitored by YL Tech Experts</u></a></li>
-<li><a href="https://win-webmaster.techidaily.com/ensuring-updated-sound-card-drivers-tips-from-yl-software-expertise/"><u>Ensuring Updated Sound Card Drivers: Tips From YL Software Expertise</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-changefake-your-lava-blaze-2-5g-location-on-viber-drfone-by-drfone-virtual-android/"><u>How to Change/Fake Your Lava Blaze 2 5G Location on Viber | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/how-to-come-up-with-the-best-pokemon-team-on-lava-agni-2-5g-drfone-by-drfone-virtual-android/"><u>How to Come up With the Best Pokemon Team On Lava Agni 2 5G? | Dr.fone</u></a></li>
-<li><a href="https://win-webmaster.techidaily.com/how-to-fix-a-laptop-that-refuses-to-boot-solutions-from-yl-computing-and-yl-software/"><u>How to Fix a Laptop That Refuses to Boot - Solutions From YL Computing and YL Software</u></a></li>
-<li><a href="https://win-webmaster.techidaily.com/how-to-implement-parental-management-tools-on-windows-step-by-step-from-yl-software/"><u>How to Implement Parental Management Tools on Windows: Step-by-Step From YL Software</u></a></li>
-<li><a href="https://win-webmaster.techidaily.com/how-to-troubleshoot-graphics-card-problems-causing-gaming-crashes-on-your-computer-tips-and-expertise-by-yl-software/"><u>How to Troubleshoot Graphics Card Problems Causing Gaming Crashes on Your Computer – Tips & Expertise by YL Software</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-forgotten-the-voicemail-password-of-motorola-razr-40-ultra-try-these-fixes-by-drfone-android/"><u>In 2024, Forgotten The Voicemail Password Of Motorola Razr 40 Ultra? Try These Fixes</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/leading-phones-best-gopro-videos-editing-tools-for-2024/"><u>Leading Phones' Best GoPro Videos Editing Tools for 2024</u></a></li>
-<li><a href="https://win-webmaster.techidaily.com/mastering-bitcoin-balance-verification-a-comprehensive-guide-by-yl-computing/"><u>Mastering Bitcoin Balance Verification: A Comprehensive Guide by YL Computing</u></a></li>
-<li><a href="https://techtrends.techidaily.com/top-rated-network-server-cabinets-and-chassis-2024-reviews/"><u>Top-Rated Network Server Cabinets & Chassis - 2024 Reviews</u></a></li>
-<li><a href="https://win-webmaster.techidaily.com/troubleshooting-your-network-connected-printer-problems-tips-and-solutions-from-yl-computing/"><u>Troubleshooting Your Network-Connected Printer Problems - Tips and Solutions From YL Computing</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/turn-on-windows-11s-rgb-controller-functionality/"><u>Turn on Windows 11'S RGB Controller Functionality</u></a></li>
-<li><a href="https://change-location.techidaily.com/where-is-the-best-place-to-catch-dratini-on-samsung-galaxy-s24-ultra-drfone-by-drfone-virtual-android/"><u>Where Is the Best Place to Catch Dratini On Samsung Galaxy S24 Ultra | Dr.fone</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-2024-approved-investigating-user-experiences-with-free2x-webcam-tools/"><u>[Updated] 2024 Approved Investigating User Experiences with Free2X Webcam Tools</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-explore-greatest-vr-handhelds-listed/"><u>[Updated] Explore Greatest VR Handhelds Listed</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-elevate-engagement-discover-these-top-12-techniques-for-video-success/"><u>[Updated] In 2024, Elevate Engagement - Discover These Top 12 Techniques for Video Success</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-the-ultimate-resource-for-morphvox-audio-transformation/"><u>[Updated] The Ultimate Resource for MorphVOX Audio Transformation</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/conquering-skies-with-precision-an-in-depth-look-at-the-dji-mavic-2-pros-dominance-among-professionals/"><u>Conquering Skies with Precision: An In-Depth Look at the DJI Mavic 2 Pro's Dominance Among Professionals</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/dji-flight-series-basic-pro-and-ultrahd/"><u>DJI Flight Series Basic, Pro, and UltraHD</u></a></li>
+<li><a href="https://win-webmaster.techidaily.com/easy-steps-to-salvage-file-loss-on-sd-card-via-windows-terminal/"><u>Easy Steps to Salvage File Loss on SD Card via Windows Terminal</u></a></li>
+<li><a href="https://win-webmaster.techidaily.com/fehlerbehebung-warum-der-ipod-deaktiviert-bleibt-und-keine-verbindung-zu-itunes-herstellen-kann/"><u>Fehlerbehebung: Warum Der iPod Deaktiviert Bleibt Und Keine Verbindung Zu iTunes Herstellen Kann</u></a></li>
+<li><a href="https://win-webmaster.techidaily.com/how-to-fix-microsoft-word-issues-the-problem-with-double-clicking-in-windows-explorer/"><u>How to Fix Microsoft Word Issues: The Problem with Double-Clicking in Windows Explorer</u></a></li>
+<li><a href="https://win-webmaster.techidaily.com/resolving-the-getting-windows-ready-error-keep-pc-running/"><u>Resolving the 'Getting Windows Ready' Error - Keep PC Running</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/the-ultimate-technique-to-create-stunning-poems-via-chatgpt/"><u>The Ultimate Technique to Create Stunning Poems via ChatGPT</u></a></li>
+<li><a href="https://win-webmaster.techidaily.com/windows-11startapp/"><u>Windows 11でStartAppが見当たらない時の解決策</u></a></li>
+<li><a href="https://win-webmaster.techidaily.com/1728473301078-ssd5/"><u>クローンSSDが立ち上がらない問題：5手筋による回復法</u></a></li>
 </ul></div>
 
