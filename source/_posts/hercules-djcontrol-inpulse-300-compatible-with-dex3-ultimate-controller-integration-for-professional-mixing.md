@@ -1,7 +1,7 @@
 ---
 title: "Hercules DJControl Inpulse 300 Compatible with DEX3: Ultimate Controller Integration for Professional Mixing"
-date: 2025-02-04T06:16:29.335Z
-updated: 2025-02-08T22:34:28.374Z
+date: 2025-02-16T19:39:12.640Z
+updated: 2025-02-18T21:08:37.797Z
 tags:
   - product
 categories:
@@ -27,13 +27,13 @@ The [Hercules DJControl Inpulse 300](https://www.hercules.com/en-us/product/djco
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Hercules DJControl Inpulse 300 Specifications:
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Audio
@@ -43,7 +43,7 @@ The [Hercules DJControl Inpulse 300](https://www.hercules.com/en-us/product/djco
 * Headphones out: 1/8” stereo (3.5 mm)Resolution: 24-bit/44.1 kHz
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Controls Per Deck
@@ -55,7 +55,7 @@ The [Hercules DJControl Inpulse 300](https://www.hercules.com/en-us/product/djco
 * Browser controls: Rotary encoder + 2 load keys + Assistant key
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Controls On Mixer
@@ -83,7 +83,7 @@ The [Hercules DJControl Inpulse 300](https://www.hercules.com/en-us/product/djco
 _Have questions about the **Hercules DJ Control Inpulse 300** and how it works with our DEX 3 **DJ software**? Please leave them in the comments section below!_
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -105,16 +105,22 @@ https://i0.wp.com/pcdj.com/wp-content/uploads/2020/06/inpulse300.jpg?fit=1114%2C
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/reaking-through-boundaries-optimizing-videos-for-maximum-traction-for-2024/"><u>[New] Breaking Through Boundaries Optimizing Videos for Maximum Traction for 2024</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/new-pixelplay-review-system-for-2024/"><u>[New] PixelPlay Review System for 2024</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-unlock-insights-into-video-popularity-via-rank-trackers/"><u>[Updated] Unlock Insights Into Video Popularity via Rank Trackers</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-unraveling-mukbang-the-art-of-feast-filled-vlogs/"><u>[Updated] Unraveling Mukbang The Art of Feast-Filled Vlogs</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/2024-approved-10-premier-igtv-horizontal-video-editors/"><u>2024 Approved 10 Premier IGTV Horizontal Video Editors</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-fake-snapchat-location-on-apple-iphone-15-pro-max-drfone-by-drfone-virtual-ios/"><u>How to Fake Snapchat Location on Apple iPhone 15 Pro Max | Dr.fone</u></a></li>
-<li><a href="https://win-webmaster.techidaily.com/how-to-permanently-add-and-merge-subtitles-in-vlc-media-player/"><u>How to Permanently Add and Merge Subtitles in VLC Media Player</u></a></li>
-<li><a href="https://win-webmaster.techidaily.com/online-konvertor-gratuit-convertir-ppm-en-jpeg-avec-movievi/"><u>Online Konvertor Gratuit - Convertir PPM en JPEG Avec Movievi</u></a></li>
-<li><a href="https://win-webmaster.techidaily.com/scambia-il-tuo-video-m4a-per-un-formato-mkv-senza-costi-con-movavi-procedura-passo-passo-fai-da-te/"><u>Scambia Il Tuo Video M4A per Un Formato MKV Senza Costi Con Movavi: Procedura Passo-Passo Fai Da Te</u></a></li>
-<li><a href="https://win-webmaster.techidaily.com/user-a-particle-is-moving-along-a-straight-line-with-velocity-given-by-vt-t3-4t-in-meters-per-second-find-the-acceleration-of-the-particle-at-time-t2/"><u>모든 요구 사항을 해결하는 맥� [User]: A Particle Is Moving Along a Straight Line with Velocity Given by $V(t) = T^3 - 4T$ (in Meters per Second). Find the Acceleration of the Particle at Time $T=2$.</u></a></li>
-<li><a href="https://win-webmaster.techidaily.com/3g3gp/"><u>オンラインでの3g/3gpファイル変換を無料提供 - ムヴァービ</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-lore-masters-collective-essential-eight/"><u>[New] Lore Masters Collective - Essential Eight</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-prime-pc-idle-gaming-selections/"><u>[Updated] 2024 Approved Prime PC Idle Gaming Selections</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/mov-h264/"><u>快適なMOVファイル変換 - H264形式へのガイド付き手順</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/budget-friendly-finds-my-experience-with-the-affordable-surface-pro-11-insights-from-a-windows-guru-zdnet/"><u>Budget-Friendly Finds: My Experience with the Affordable Surface Pro 11 - Insights From a Windows Guru | ZDNet</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/enhance-every-shot-with-smart-camera-accessories-for-2024/"><u>Enhance Every Shot with Smart Camera Accessories for 2024</u></a></li>
+<li><a href="https://win-webmaster.techidaily.com/expert-advice-on-preventing-laptop-overheating-tips-from-yl-software-professionals/"><u>Expert Advice on Preventing Laptop Overheating - Tips From YL Software Professionals</u></a></li>
+<li><a href="https://win-webmaster.techidaily.com/how-to-change-screen-preferences-via-control-panel-tips-from-yl-computing/"><u>How to Change Screen Preferences via Control Panel - Tips From YL Computing</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-a-perfect-guide-to-remove-or-disable-google-smart-lock-on-itel-p55-5g-by-drfone-android/"><u>In 2024, A Perfect Guide To Remove or Disable Google Smart Lock On Itel P55 5G</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-in-2024-title-magic-in-fcpx-how-to-create-eye-catching-headlines/"><u>New In 2024, Title Magic in FCPX How to Create Eye-Catching Headlines</u></a></li>
+<li><a href="https://win-webmaster.techidaily.com/newest-hits-now-available-update-your-playlist-with-the-latest-additions-on-karaoke-cloud-pro-3282019/"><u>Newest Hits Now Available - Update Your Playlist with the Latest Additions on Karaoke Cloud Pro (3/28/2019)</u></a></li>
+<li><a href="https://win-webmaster.techidaily.com/optimal-graphics-card-selection-for-peak-gaming-and-workstation-efficiency-insights-from-yl-computing/"><u>Optimal Graphics Card Selection for Peak Gaming and Workstation Efficiency: Insights From YL Computing</u></a></li>
+<li><a href="https://discover-forum.techidaily.com/protection-strategies-for-online-assets-with-yl-software-insights/"><u>Protection Strategies for Online Assets with YL Software Insights</u></a></li>
+<li><a href="https://win-webmaster.techidaily.com/resolving-your-internet-access-problems-with-wireless-networking-a-guide-by-yl-software/"><u>Resolving Your Internet Access Problems with Wireless Networking - A Guide by YL Software</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/steps-to-mend-chromes-sudden-shutdown-on-pc/"><u>Steps to Mend Chrome’s Sudden Shutdown on PC</u></a></li>
+<li><a href="https://win-webmaster.techidaily.com/unleash-advanced-features-on-dj-controllers-with-new-additions-reloop-terminal-mix-8-plus-beatmix-4-pcdj-enhanced-edition/"><u>Unleash Advanced Features on DJ Controllers with New Additions: Reloop Terminal Mix 8 + BeatMix 4 - PCDJ Enhanced Edition</u></a></li>
+<li><a href="https://win-webmaster.techidaily.com/updating-your-system-a-step-by-step-guide-to-upgrading-to-windows-11-tips-and-tricks-from-yl-computing/"><u>Updating Your System: A Step-by-Step Guide to Upgrading to Windows 11 - Tips & Tricks From YL Computing</u></a></li>
+<li><a href="https://win-webmaster.techidaily.com/verifying-your-systems-compatibility-a-guide-by-yl-computing/"><u>Verifying Your System's Compatibility: A Guide by YL Computing</u></a></li>
 </ul></div>
 
