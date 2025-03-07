@@ -1,7 +1,7 @@
 ---
 title: How to Extend Your Small SSD Onto a Bigger SSD for Optimal Performance in Windows 11
-date: 2025-02-02T00:11:32.881Z
-updated: 2025-02-08T20:30:02.934Z
+date: 2025-02-28T20:57:28.377Z
+updated: 2025-03-07T22:02:43.952Z
 categories:
   - AOMEI-Backuper
 thumbnail: https://thmb.techidaily.com/c2e36ccbc985ffa8060cba8099c01adb9e0bc227482cd4647ba2ea8d61ea0fe4.png
@@ -28,20 +28,12 @@ Par[Aurore](https://tools.techidaily.com/ubackup/products/)Publié le 26/06/2024
 
 Partager sur : ![facebook](https://www.ubackup.com/resource/images/ab-theme/ub-article-ab-ic-share-fb-24.svg) ![twitter](https://www.ubackup.com/resource/images/ab-theme/ub-article-ab-ic-share-tw-24.svg) ![instagram](https://www.ubackup.com/resource/images/ab-theme/ub-article-ab-ic-share-in-24.svg) ![reddit](https://www.ubackup.com/resource/images/ab-theme/ub-article-ab-ic-share-reddit-24.svg) 
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Table des matières** 
 
 1. [Logiciel de sauvegarde NAS Buffalo pour système Windows](https://tools.techidaily.com/ubackup/products/)
 2. [Avantages du logiciel de sauvegarde NAS Buffalo - AOMEI Backupper Standard](https://tools.techidaily.com/ubackup/products/)
 3. [Comment utiliser le logiciel de sauvegarde NAS Buffalo pour Windows pour sauvegarder des fichiers](https://tools.techidaily.com/ubackup/products/)
 4. [Dernières réflexions sur l'utilitaire de sauvegarde Buffalo](https://tools.techidaily.com/ubackup/products/)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Logiciel de sauvegarde NAS Buffalo pour système Windows
 
@@ -89,17 +81,9 @@ Tout d'abord, cliquez sur **Ajouter un dossier** ou **Ajouter un fichier** sur l
 
 [![ajouter un fichier ou un dossier](https://www.ubackup.com/fr/articles/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/fr/std/backup/sauvegarder/sauvegarde-fichier/ajouter-dossier-fichier.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Cliquez sur **Share/NAS** pour ouvrir la fenêtre suivante.
 
 [![share/nas](https://www.ubackup.com/fr/articles/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/fr/std/backup/sauvegarder/sauvegarde-fichier/ouvrir.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Ensuite, cliquez sur **Ajouter un périphérique Share ou NAS**, saisissez le nom d'affichage, l'adresse IP, le nom d'utilisateur et le mot de passe pour connecter votre espace de stockage NAS Buffalo. Double-cliquez ensuite dessus dans le volet de gauche et sélectionnez ce que vous souhaitez sauvegarder dans la liste de droite.
 
@@ -108,10 +92,6 @@ Ensuite, cliquez sur **Ajouter un périphérique Share ou NAS**, saisissez le no
 **Étape 3.** Cliquez là où la flèche pointe et sélectionnez le disque externe préparé comme destination.
 
 [![destination](https://www.ubackup.com/fr/articles/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/fr/std/backup/sauvegarder/sauvegarde-fichier/choix-chemin-destinations.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Étape 4.** Pour rendre la sauvegarde simple et efficace, définissez une planification de sauvegarde quotidienne, hebdomadaire ou mensuelle dans l'endroit inférieur et cliquez sur **Démarrer** pour sauvegarder le NAS Buffalo. Si vous cochez la case Réveiller l'ordinateur pour exécuter les tâches planifiées, le logiciel s'ouvrira et exécutera automatiquement cette tâche.
 
@@ -124,10 +104,6 @@ Et la sauvegarde incrémentielle nécessite une récupération plus complexe tan
 De plus, vous pouvez activer la notification par e-mail une fois la tâche terminée. Commenter, fractionner, compresser l'image de sauvegarde ou sélectionner un mode de sauvegarde, etc.
 
 [![options](https://www.ubackup.com/fr/articles/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/fr/std/backup/sauvegarder/options-sauvegarder/sauvegarde-options.png "AOMEI Email SMS Notification Settings")
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Dernières réflexions sur l'utilitaire de sauvegarde Buffalo
 
@@ -148,10 +124,6 @@ Les informations fournies sont-elles utiles ? Votre vote compte beaucoup pour no
 [Aurore](https://tools.techidaily.com/ubackup/products/) · Éditeur
 
 Éditrice senior d'AOMEI Technology qui rédige principalement des articles sur la sauvegarde, la synchronisation, le clonage et la restauration de l'ordinateur, tout dans le but de proposer des solutions simples aux utilisateurs pour protéger les données de leur ordinateur. Grâce à ses expertises informatiques, elle propose souvent des astuces très utiles.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Autres articles connexes
 
@@ -198,16 +170,21 @@ Protégez toutes les données de votre ordinateur avec la sauvegarde, la synchro
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-2024-approved-methods-for-extracting-video-tweets-as-compact-mp3-files/"><u>[New] 2024 Approved Methods for Extracting Video Tweets as Compact MP3 Files</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-2024-approved-can-you-store-high-quality-videos-in-128gb/"><u>[Updated] 2024 Approved Can You Store High-Quality Videos in 128Gb?</u></a></li>
-<li><a href="https://win-webmaster.techidaily.com/achieve-optimal-performance-for-your-computer-with-essential-advice-from-yl-experts/"><u>Achieve Optimal Performance for Your Computer with Essential Advice From YL Experts</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/cutting-edge-actions-screening-tech-report-for-2024/"><u>Cutting-Edge Actions Screening Tech Report for 2024</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/elevate-your-recordings-selecting-top-pc-and-mac-apps/"><u>Elevate Your Recordings Selecting Top PC & Mac Apps</u></a></li>
-<li><a href="https://win-webmaster.techidaily.com/how-to-spot-and-fix-your-graphics-card-issues-expert-advice-by-yl-software-experts/"><u>How To Spot And Fix Your Graphics Card Issues, Expert Advice by YL Software Experts</u></a></li>
-<li><a href="https://win-webmaster.techidaily.com/mastering-pc-protection-a-comprehvew-of-configuring-windows-defenses-via-the-control-panel-provided-by-yl-software-solutions/"><u>Mastering PC Protection: A Comprehvew of Configuring Windows Defenses via the Control Panel, Provided by YL Software Solutions</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/mastering-toms-cutting-edge-technology-insights/"><u>Mastering Tom's Cutting-Edge Technology Insights</u></a></li>
-<li><a href="https://win-webmaster.techidaily.com/navigating-the-blockchain-revolution-stay-informed-on-cryptocurrency-trends-with-yl-software-solutions/"><u>Navigating the Blockchain Revolution: Stay Informed on Cryptocurrency Trends with YL Software Solutions</u></a></li>
-<li><a href="https://win-webmaster.techidaily.com/timeline-analysis-the-final-years-and-downfall-of-the-qing-empire-insights-from-yl-software/"><u>Timeline Analysis: The Final Years and Downfall of the Qing Empire - Insights From YL Software</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/top-rated-apps-for-retrieving-lost-iphone-contacts/"><u>Top Rated Apps for Retrieving Lost iPhone Contacts</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-the-metrics-of-mastery-assessing-luminances-hdr-capabilities/"><u>[New] In 2024, The Metrics of Mastery Assessing Luminance's HDR Capabilities</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-chorus-of-commitment-best-ballads-for-marital-dreaming-for-2024/"><u>[Updated] Chorus of Commitment Best Ballads for Marital Dreaming for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-sharpen-your-streams-top-5-video-enhancers/"><u>[Updated] Sharpen Your Streams Top 5 Video Enhancers</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/1722207479488-art-world-uprising-understanding-the-lawsuit-between-sarah-silverman-other-talents-versus-ai-giants/"><u>Art World Uprising: Understanding the Lawsuit Between Sarah Silverman, Other Talents Versus AI Giants.</u></a></li>
+<li><a href="https://win-webmaster.techidaily.com/comment-resoudre-limpossibilite-de-creer-un-point-de-restauration-dans-windows-10/"><u>Comment Résoudre L'Impossibilité De Créer Un Point De Restauration Dans Windows 10</u></a></li>
+<li><a href="https://win-webmaster.techidaily.com/exploring-the-depths-of-hyper-v-a-step-by-step-tutorial-on-turning-on-nested-vm-technology/"><u>Exploring the Depths of Hyper-V: A Step-by-Step Tutorial on Turning On Nested VM Technology</u></a></li>
+<li><a href="https://win-webmaster.techidaily.com/find-the-ideal-free-pc-scan-utilities-a-review-of-5-superior-picks/"><u>Find the Ideal Free PC Scan Utilities: A Review of 5 Superior Picks!</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-missing-contacts-files-from-xiaomi-redmi-note-13-5g-by-fonelab-android-recover-contacts/"><u>How To Restore Missing Contacts Files from Xiaomi Redmi Note 13 5G.</u></a></li>
+<li><a href="https://win-webmaster.techidaily.com/how-to-restore-missing-iphone-contacts-a-5-step-guide/"><u>How to Restore Missing iPhone Contacts: A 5-Step Guide</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-unlock-hidden-potential-essential-edits-for-starters/"><u>In 2024, Unlock Hidden Potential Essential Edits for Starters</u></a></li>
+<li><a href="https://win11.techidaily.com/microsoft-store-fix-kit-conquering-error-code-0x80-cookies/"><u>Microsoft Store Fix Kit: Conquering Error Code 0X80 Cookies</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/play-store-stuck-on-downloading-of-xiaomi-redmi-note-12-4g-7-ways-to-resolve-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Play Store Stuck on Downloading Of Xiaomi Redmi Note 12 4G? 7 Ways to Resolve | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/startup-steps-for-stream-money-in-periscope-for-2024/"><u>Startup Steps for Stream Money in Periscope for 2024</u></a></li>
+<li><a href="https://win-webmaster.techidaily.com/step-by-step-guide-switching-your-cell-phone-plan-from-old-model-to-latest-iphone/"><u>Step-by-Step Guide: Switching Your Cell Phone Plan From Old Model to Latest iPhone</u></a></li>
+<li><a href="https://win-webmaster.techidaily.com/wiederherstellung-verlorener-daten-nach-einem-reset-auf-windows-11-schritt-fur-schritt-anleitung/"><u>Wiederherstellung Verlorener Daten Nach Einem Reset Auf Windows 11 - Schritt-Für-Schritt-Anleitung</u></a></li>
+<li><a href="https://win-webmaster.techidaily.com/windows-7-ssd/"><u>Windows 7 SSDクローニングのシンプルガイド：データ損失フリーマスタリング手順</u></a></li>
 </ul></div>
 

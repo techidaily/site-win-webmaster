@@ -1,7 +1,7 @@
 ---
 title: "Hercules DJControl Inpulse 300 Compatible with DEX3: Ultimate Controller Integration for Professional Mixing"
-date: 2025-02-16T19:39:12.640Z
-updated: 2025-02-18T21:08:37.797Z
+date: 2025-03-01T19:54:01.440Z
+updated: 2025-03-07T19:28:40.723Z
 tags:
   - product
 categories:
@@ -26,25 +26,13 @@ The [Hercules DJControl Inpulse 300](https://www.hercules.com/en-us/product/djco
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Hercules DJControl Inpulse 300 Specifications:
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Audio
 
 * Integrated built-in audio interface
 * Master out for speakers: 2 RCA
 * Headphones out: 1/8” stereo (3.5 mm)Resolution: 24-bit/44.1 kHz
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Controls Per Deck
 
@@ -53,10 +41,6 @@ The [Hercules DJControl Inpulse 300](https://www.hercules.com/en-us/product/djco
 * 8 pads x 8 modes (hot-cue, roll, slicer and more).
 * Effects rack with 2 rotary fx knobs and dry-wet, quantize, loop in/loop out keys.
 * Browser controls: Rotary encoder + 2 load keys + Assistant key
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Controls On Mixer
 
@@ -82,10 +66,6 @@ The [Hercules DJControl Inpulse 300](https://www.hercules.com/en-us/product/djco
 
 _Have questions about the **Hercules DJ Control Inpulse 300** and how it works with our DEX 3 **DJ software**? Please leave them in the comments section below!_
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### _Related_
 
 https://i0.wp.com/pcdj.com/wp-content/uploads/2020/06/inpulse300.jpg?fit=1114%2C522&ssl=1 522 1114 Ryan Sherr https://www.pcdj.com/wp-content/uploads/2021/07/pcdj-main-logo-2.png Ryan Sherr2020-06-24 17:41:572023-04-10 17:03:52DJ Controllers | DEX 3 Now Supports the Hercules DJControl Inpulse 300}
@@ -105,22 +85,21 @@ https://i0.wp.com/pcdj.com/wp-content/uploads/2020/06/inpulse300.jpg?fit=1114%2C
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-lore-masters-collective-essential-eight/"><u>[New] Lore Masters Collective - Essential Eight</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-prime-pc-idle-gaming-selections/"><u>[Updated] 2024 Approved Prime PC Idle Gaming Selections</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/mov-h264/"><u>快適なMOVファイル変換 - H264形式へのガイド付き手順</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/budget-friendly-finds-my-experience-with-the-affordable-surface-pro-11-insights-from-a-windows-guru-zdnet/"><u>Budget-Friendly Finds: My Experience with the Affordable Surface Pro 11 - Insights From a Windows Guru | ZDNet</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/enhance-every-shot-with-smart-camera-accessories-for-2024/"><u>Enhance Every Shot with Smart Camera Accessories for 2024</u></a></li>
-<li><a href="https://win-webmaster.techidaily.com/expert-advice-on-preventing-laptop-overheating-tips-from-yl-software-professionals/"><u>Expert Advice on Preventing Laptop Overheating - Tips From YL Software Professionals</u></a></li>
-<li><a href="https://win-webmaster.techidaily.com/how-to-change-screen-preferences-via-control-panel-tips-from-yl-computing/"><u>How to Change Screen Preferences via Control Panel - Tips From YL Computing</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-a-perfect-guide-to-remove-or-disable-google-smart-lock-on-itel-p55-5g-by-drfone-android/"><u>In 2024, A Perfect Guide To Remove or Disable Google Smart Lock On Itel P55 5G</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/new-in-2024-title-magic-in-fcpx-how-to-create-eye-catching-headlines/"><u>New In 2024, Title Magic in FCPX How to Create Eye-Catching Headlines</u></a></li>
-<li><a href="https://win-webmaster.techidaily.com/newest-hits-now-available-update-your-playlist-with-the-latest-additions-on-karaoke-cloud-pro-3282019/"><u>Newest Hits Now Available - Update Your Playlist with the Latest Additions on Karaoke Cloud Pro (3/28/2019)</u></a></li>
-<li><a href="https://win-webmaster.techidaily.com/optimal-graphics-card-selection-for-peak-gaming-and-workstation-efficiency-insights-from-yl-computing/"><u>Optimal Graphics Card Selection for Peak Gaming and Workstation Efficiency: Insights From YL Computing</u></a></li>
-<li><a href="https://discover-forum.techidaily.com/protection-strategies-for-online-assets-with-yl-software-insights/"><u>Protection Strategies for Online Assets with YL Software Insights</u></a></li>
-<li><a href="https://win-webmaster.techidaily.com/resolving-your-internet-access-problems-with-wireless-networking-a-guide-by-yl-software/"><u>Resolving Your Internet Access Problems with Wireless Networking - A Guide by YL Software</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/steps-to-mend-chromes-sudden-shutdown-on-pc/"><u>Steps to Mend Chrome’s Sudden Shutdown on PC</u></a></li>
-<li><a href="https://win-webmaster.techidaily.com/unleash-advanced-features-on-dj-controllers-with-new-additions-reloop-terminal-mix-8-plus-beatmix-4-pcdj-enhanced-edition/"><u>Unleash Advanced Features on DJ Controllers with New Additions: Reloop Terminal Mix 8 + BeatMix 4 - PCDJ Enhanced Edition</u></a></li>
-<li><a href="https://win-webmaster.techidaily.com/updating-your-system-a-step-by-step-guide-to-upgrading-to-windows-11-tips-and-tricks-from-yl-computing/"><u>Updating Your System: A Step-by-Step Guide to Upgrading to Windows 11 - Tips & Tricks From YL Computing</u></a></li>
-<li><a href="https://win-webmaster.techidaily.com/verifying-your-systems-compatibility-a-guide-by-yl-computing/"><u>Verifying Your System's Compatibility: A Guide by YL Computing</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/winx-dvd-ripper-platinum-dvdmicrosoftapple/"><u>[公式版] WinX DVD Ripper Platinum - DVDプロテクト回避可能、高速コピー・Microsoft/Apple環境向け</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-effortless-switch-between-video-playback-on-devices-for-2024/"><u>[Updated] Effortless Switch Between Video Playback on Devices for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/2024-approved-free-to-download-movie-cast-releases/"><u>2024 Approved Free-to-Download Movie Cast Releases</u></a></li>
+<li><a href="https://win-webmaster.techidaily.com/1726222408360-webmgif-movavi/"><u>享受在線無限制的WebM與GIF格式交換 - 高效運行Movavi工具</u></a></li>
+<li><a href="https://article-helps.techidaily.com/a-compreenas-guide-to-leveraging-ps-background-erasure-for-professional-results/"><u>A Compreenas Guide to Leveraging PS Background Erasure for Professional Results</u></a></li>
+<li><a href="https://win-webmaster.techidaily.com/achat-gratuit-de-services-dechange-de-points-a-lonu-et-conversion-des-points-davantage-aerien-mpg-vers-visa-via-movavi/"><u>Achat Gratuit De Services D'échange De Points À L'ONU Et Conversion Des Points D'avantage Aérien (MPG) Vers Visa via Movavi</u></a></li>
+<li><a href="https://win-webmaster.techidaily.com/free-online-converter-transform-avi-files-into-m4a-format-with-ease-moveavi/"><u>Free Online Converter: Transform AVI Files Into M4A Format with Ease - MoveAVi</u></a></li>
+<li><a href="https://win-webmaster.techidaily.com/gratuito-converter-para-transformar-videos-flv-em-imagens-animadas-gif-site-online-de-movavi/"><u>Gratuito Converter Para Transformar Vídeos FLV Em Imagens Animadas GIF - Site Online De Movavi</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-fcps-ultimate-effect-upgrade-the-best-10-plugins/"><u>In 2024, FCP’s Ultimate Effect Upgrade The Best 10 Plugins</u></a></li>
+<li><a href="https://win-webmaster.techidaily.com/movavis-vrije-online-werkplaats-m4a-naar-aiff-konvertiezen/"><u>Movavi's Vrije Online Werkplaats M4A Naar AIFF Konvertiezen</u></a></li>
+<li><a href="https://win-webmaster.techidaily.com/movavi-m2ts/"><u>Movavi와 같은 무료 솔루션을 사용하여 M2TS를 원근 바인드로 이동하는 방법</u></a></li>
+<li><a href="https://win-webmaster.techidaily.com/permanent-subtitle-integration-in-vlc-a-step-by-step-guide-using-movavi-video-converter/"><u>Permanent Subtitle Integration in VLC: A Step-by-Step Guide Using Movavi Video Converter</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/rainbow-six-siege-players-alert-fix-your-games-voice-chat-glitches-now/"><u>Rainbow Six Siege Players Alert! Fix Your Game's Voice Chat Glitches Now</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/top-social-media-hash-tracking-software-fb-tweet-and-ig-edition-for-2024/"><u>Top Social Media Hash Tracking Software FB, Tweet & IG Edition for 2024</u></a></li>
+<li><a href="https://apple-account.techidaily.com/turning-off-two-factor-authentication-on-apple-iphone-se-2020-5-tips-you-must-know-by-drfone-ios/"><u>Turning Off Two Factor Authentication On Apple iPhone SE (2020)? 5 Tips You Must Know</u></a></li>
+<li><a href="https://howto.techidaily.com/why-is-my-tecno-spark-20c-offline-troubleshooting-guide-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Why Is My Tecno Spark 20C Offline? Troubleshooting Guide | Dr.fone</u></a></li>
 </ul></div>
 
